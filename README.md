@@ -2,7 +2,7 @@
 <sub>call me mike or nathan </sub>
 
 <p align="center" dir="auto">
-<img src="https://files.catbox.moe/e5wqqp.png" style="max-width: 100%; "></p>
+<img src="https://files.catbox.moe/ggwv1u.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>Literally Michael. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
