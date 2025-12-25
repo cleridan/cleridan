@@ -1,7 +1,22 @@
-## Hi there 👋
+<p align="center" dir="auto">
+<sub>call me mike or nathan </sub>
+
+<p align="center" dir="auto">
+<img src="[https://files.catbox.moe/e5wqqp.png]" style="max-width: 100%; "></p>
+
+<p align="center" dir="auto">
+<sub>Literally Michael. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
+
+<p align="center" dir="auto">
+<sub>'Cause girl I was made for you, and girl you were made for me.</sub>
+
+<p align="center" dir="auto">
+<sub>C+H is welcome , and W2I </sub>
+
+
 
 <!--
-**cleridan/cleridan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**dynaloser/dynaloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
