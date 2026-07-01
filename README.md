@@ -1,17 +1,14 @@
 <p align="center" dir="auto">
 <sub>call me nate or nathan </sub>
 
-<p align="center" dir="auto">
-<img src="https://i.postimg.cc/YqSX8kLG/8B3C6F27-F26D-4F2E-B724-159D210C05BC.gif" style="max-width: 100%; "></p>
+<p align="center">
+  <img src="https://i.postimg.cc/0NZn7B5d/IMG-1408.jpg"/> 
 
 <p align="center" dir="auto">
 <sub>iloovebritpop. <b><ins>ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
 <sub>'Uh and shes the fornicator, so punk rock just let the haters hate her.</sub>
-
-<p align="center" dir="auto">
-<sub>C+H is welcome , and W2I </sub>
 
 
 
