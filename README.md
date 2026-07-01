@@ -1,5 +1,5 @@
 <p align="center" dir="auto">
-<sub>call me mike or nathan </sub>
+<sub>call me nate or nathan </sub>
 
 <p align="center" dir="auto">
 <img src="https://files.catbox.moe/8s707c.gif" style="max-width: 100%; "></p>
